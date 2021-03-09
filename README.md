@@ -1,2 +1,2 @@
-# DiFinArtCreations
+# DiFiniArtCreations
 Di Fini Art Creations
